@@ -1,0 +1,2 @@
+As a leadership member in the clubs I am in, I have had to give multiple presentations on things related to hardware. This was applied to both clubs - most largely for the Space and Satellite Systems Club at UC Davis, as well as the Computational Biology Club at UC Davis. This has extended my knowledge of circuit analysis as well as sharpened my experience with public speaking.
+I continue to teach using these slides, improving my own abilities to present, as I still have a lot to learn.
